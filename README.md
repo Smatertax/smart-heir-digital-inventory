@@ -1,0 +1,1 @@
+# smart-heir-digital-inventory
